@@ -35,9 +35,29 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The faire Æthiopian Dedicated to the King and Queene. By their Maiesties most humble subiect and ser
+Ad Regem.Prospera conservent Carolum tibi Fata Minorem;Tu Britonum Carolus denique Magnus eris.A la RoseFleur-de-lysDum rotat astra polus, dum fixa est terra, BritannisGallica florescant Lilia juncta 
 #####Body#####
-The faire Æthiopian Dedicated to the King and Queene. By their Maiesties most humble subiect and ser
+
+1. THE Faire Aethiopian.
+
+1. THE Faire Aethiopian.
+
+1. THE Faire AEthiopian.
+
+1. THE Faire Aethiopian.
+
+1. THE Faire AEthiopian.
+
+1. THE Faire AEthiopian.
+
+1. THE Faire AEthiopian.
+
+1. THE Faire Aethiopian.
+
+1. THE Faire AEthiopian.
+
+1. THE Faire AEthiopian.
+
 **Types of content**
 
   * There are 6533 **verse** lines!
